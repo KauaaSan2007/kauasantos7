@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![descrição do GIF](https://tenor.com/pt-BR/view/recaba-luva-de-pedreiro-gif-25731510)
+!(https://tenor.com/pt-BR/view/recaba-luva-de-pedreiro-gif-25731510)
