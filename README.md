@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![](https://tenor.com/pt-BR/view/recaba-luva-de-pedreiro-gif-25731510)
+![](https://media.tenor.com/iHa8Q3BQsYgAAAAM/terrifier-clown-meme.gif)
