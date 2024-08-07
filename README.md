@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![](https://media1.tenor.com/m/XsND-nOacoUAAAAd/trihard-oops.gif)
+![](https://media1.tenor.com/m/SI8SjGke5LsAAAAd/buldak-unravel.gif)
