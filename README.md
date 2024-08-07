@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![](https://media1.tenor.com/m/KufboHmMzoIAAAAC/recaba-luva-de-pedreiro.gif)
+![](https://media1.tenor.com/m/QzJzI3kNmDAAAAAC/lick-peter-griffin.gif)
