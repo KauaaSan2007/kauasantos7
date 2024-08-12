@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![receba pai](https://media1.tenor.com/m/cTkviH3l3XwAAAAC/peter-griffin-arabic.gif)
+![receba pai](https://tenor.com/pt-BR/view/trihard-oops-tumbling-tumble-down-epic-fail-gif-15000979)
