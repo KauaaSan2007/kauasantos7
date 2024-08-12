@@ -10,4 +10,4 @@ Meu nome é Kauã Santos
 
 dejesuskaua047@gmai.com
 
-![](https://tenor.com/pt-BR/view/trihard-oops-tumbling-tumble-down-epic-fail-gif-15000979)
+![](https://media.tenor.com/XsND-nOacoUAAAAM/trihard-oops.gif)
